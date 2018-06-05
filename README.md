@@ -9,7 +9,7 @@ From the girl who made the Cocoa-Biscuit Cake with Marshmallow-Cheese Creme popu
 - 1 Peach
 - 1 Pak Choi
 - 1 Eggplant
-- 1 Milk (Wait. Milk doesn't come in this shape.)
+- 1 Milk (Wait. Milk doesn't come in this shape. If yours did, better throw it away!)
 
 ## How to cook it:
 
